@@ -1,1 +1,1 @@
-# UKPolitics
+# Politics
